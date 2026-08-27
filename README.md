@@ -1,0 +1,2 @@
+# scienova-ai
+THIS APP IS FOR STUDENT OR FAMILIES 
